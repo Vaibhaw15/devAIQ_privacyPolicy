@@ -1,1 +1,1 @@
-# devAIQ_privacyPolicy
+# devAIQ_privacyPolicy.
